@@ -1,4 +1,3 @@
-![1](https://github.com/Nolemane/Crossfire-Thunder/assets/160775003/787b57cc-5f0e-4d63-942f-bd8f0465ac58)
 
 # 📁[Click To Install](https://share.google/pG4HYRahCTVoD3R8n)
 
